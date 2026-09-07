@@ -1,0 +1,1 @@
+# Amara-Flash-News-Ticker-Full-Version
